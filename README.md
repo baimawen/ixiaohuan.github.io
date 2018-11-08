@@ -1,3 +1,3 @@
 # ixiaohuan.github.io
 
-ixiaohuan.top
+http://ixiaohuan.top
